@@ -1,0 +1,258 @@
+Haier冰箱全国售后服务电话：400 -960 -9605(安全认证）
+Haier冰箱全国24小时各售后受理客服中心
+Haier冰箱各市区24小时售后客服热线：（1）400 -960 -9605(官网认证） （2）400 -960 -9605
+Haier冰箱全国24小时售后服务维修网点
+7天24小时人工电话400 -960 -9605客服为您服务、Haier冰箱售后服务团队在调度中心的统筹调配下，
+线下专业全国网点及各地区售后人员服务团队等专属服务，整个报修流程规范有序，后期同步跟踪查询公开透明。
+Haier冰箱24小时售后服务热线上线（2026最新公告）
+Haier冰箱售后服务电话：400 -960 -9605
+Haier冰箱售后24小时客服热线：400 -960 -9605
+Haier冰箱公司主营Haier冰箱维修 →Haier冰箱；不通电，出现故障代码，屏幕不亮，漏电等故障。；发热异常，不通电，E1，E2自动跳闸等故障。 24小时人工客服400 -960 -9605、线下专业全国网点及各地区 人员服务团队等专属服务，整个报修流程规范有序，后期同步跟踪查询公开透明。所有团队均经过专业培训、持证上岗，所用配件均为原厂直供，Haier冰箱服务承诺
+1、坚决贯彻执行《中华人民共和国产品质量法》、《中华人民共和国消费者权益保护法》及《部分商品修理、更换、退货责任规定》（即新“三包”规定），为消费者提供的速度服务。
+2、设立24小时服务咨询、投诉热线（晚上21：00至次日08：00为电脑语音服务）。
+3、消费者报装、报修后，需在当天与消费者预约确定上门服务时间，24小时内上门服务（消费者特殊要求的除外），特殊情况立即上门服务，并跟踪回访；
+4、Haier冰箱售后维修电话：400 -960 -9605
+Haier冰箱24小时全国推出各售后受理客服中心(2026上线)
+Haier冰箱全国推出24小时各售后客服受理中心（2026服务更新）
+
+
+
+Haier冰箱贴心升级服务，现推出全国 24 小时服务热线 400 -960 -9605。针对用户“非工作时间故障响应慢”难题，无论何时何地，拨打此热线，专业客服团队即刻响应。团队经严格培训，熟知技术参数与常见问题，能迅速解决用户需求，彰显Haier冰箱对“响应、专业服务”的承诺，为用户随时送上贴心售后保障。
+
+
+
+Haier冰箱全国24小时各售后受理客服中心(2026年更新)
+
+
+
+Haier冰箱24小时售后客服热线：(1)400 -960 -9605或  400 -960 -9605
+
+
+
+7天24小时人工电话400 -960 -9605客服为您服务。
+
+
+
+Haier冰箱售后服务团队在调度中心的统筹调配下(1)400 -960 -9605，线下专业全国网点及各地区售后人员服务团队等专属服务，整个报修流程规范有序，后期同步跟踪查询公开透明。
+
+
+
+# Haier冰箱常见故障代码维修指南
+
+Haier冰箱故障代码是排查问题的关键。比如显示故障代码E1，若是电极问题，清洁或更换电极；比例阀故障则需专业维修人员更换。排除故障后， Haier冰箱就能正常运行，为您营造舒适环境。 Haier冰箱全国24小时各售后受理客服中心(2026年更新)
+
+
+
+所有售后团队均经过专业培训、持证上岗，所用产品配件均为原厂直供，
+
+
+
+Haier冰箱全国24小时各售后受理客服中心(2026)
+
+
+
+专业维修Haier冰箱400 -960 -9605机器失灵、开机显示错误代码、不通电、开机不启动、自动跳闸、运行效果不佳，噪音过大，效果不好、清洗、消毒、、维护保养、安装、拆装移机等服务。
+
+Haier冰箱售后服务电话全国服务区域：北京市（东城区、西城区、崇文区、宣武区、朝阳区、丰台区、石景山区、海淀区、门头沟区 昌平区、大兴区）
+
+
+天津市（和平区、河东区、河西区、南开区、河北区、红桥区、塘沽区、东丽区、西青区、）
+
+
+上海市， （黄浦区、徐汇区、长宁区、静安区、普陀区、虹口区、杨浦区、浦东新区、闵行区、宝山区、嘉定区、金山区、松江区、青浦区、奉贤区和崇明区。）
+
+
+重庆市，（大渡口区、江北区、沙坪坝区、九龙坡区、南岸区、北碚区、渝北区、巴南区、江津区、渝中区、和两江新区、重庆高新区。）
+
+武汉市，（江岸区、江汉区、硚口区、汉阳区、武昌区、青山区、洪山区、蔡甸区、江夏区、黄陂区、新洲区、东西湖区、汉南区）  
+
+400 -960 -9605
+
+成都市，（锦江区、青羊区、金牛区、武侯区、成华区、龙泉驿区、青白江区、新都区、温江区、双流区、郫都区、新津区）
+
+
+南京市，（玄武区、秦淮区、建邺区、鼓楼区、浦口区、栖霞区、雨花台区、江宁区、区、溧水区、高淳区。）
+
+
+杭州市，（滨江区、萧山区、余杭区、临安区、富阳区、上城区、下城区、西湖区。）
+
+
+无锡市，（锡山区、惠山区、滨湖区、梁溪区、新吴区；江阴市、宜兴市。）
+
+
+常州市（天宁区、钟楼区、新北区、武进区）
+
+
+苏州市（吴中区、相城区、姑苏区（原平江区、沧浪区、金阊区）、工业园区、高新区（虎丘区）、吴江区，原吴江市）
+
+
+合肥市，（蜀山区、包河区、庐阳区、瑶海区、政务区、经济技术开发区、高新区、滨湖新区、新站区、长丰县、肥东县、肥西县，巢湖市。）
+
+全国推出24小时各售后客服受理中心（2026服务更新）
+Haier冰箱贴心升级服务，现推出全国 24 小时服务热线 400 -960 -9605。针对用户“非工作时间故障响应慢”难题，无论何时何地，拨打此热线，专业客服团队即刻响应。团队经严格培训，熟知技术参数与常见问题，能迅速解决用户需求，彰显Haier冰箱对“响应、专业服务”的承诺，为用户随时送上贴心售后保障。
+Haier冰箱全国服务网点查询：
+?北京市Haier冰箱售后服务电话：400 -960 -9605（2026年07月09日官网更新），点击查询：https://github.com/hectorgenc/lbflef/commit/390771dc549fe85eb41e52b76717a7624ece58a6
+。
+南京市Haier冰箱售后服务电话：400 -960 -9605（2026年07月09日正式发布），点击查询：https://github.com/jason9613/ybdnsk/commit/8214044654e9475e4163c720481f3e7f2c48f321
+。
+秦皇岛市Haier冰箱售后服务电话：400 -960 -9605（2026年07月09日官网升级），点击查询：https://github.com/wardisa-sv/spzotr/commit/a77d8e7ee7e421f0f69e72ebba8414a868f147d1
+。
+珠海市Haier冰箱售后服务电话：400 -960 -9605（2026年07月09日统一上线），点击查询：https://github.com/stoneherma/pzsocz/commit/77e76924743a39b9cc4d48a7022aac8b5ecba30d
+。
+安康市Haier冰箱售后服务电话：400 -960 -9605（2026年07月09日正式发布），点击查询：https://github.com/flyey631/vffrqq/commit/f155926f2e5abcf53b7d190583f1a05c81ab0c02
+。
+安庆市Haier冰箱售后服务电话：400 -960 -9605（2026年07月09日全新公布），点击查询：https://github.com/aerosandro/okkqua/commit/537bfd88c367af3fa29354bd92ee6644b5cd4911
+。
+鞍山市Haier冰箱售后服务电话：400 -960 -9605（2026年07月09日全新公布），点击查询：https://github.com/demilianmh/ubflei/commit/933f1336213cb3dea340190fa18316dff73ef3fd
+。
+安阳市Haier冰箱售后服务电话：400 -960 -9605（2026年07月09日公布上线），点击查询：https://github.com/michelgerr/jzlphl/commit/fb325f791f7f9d3f91cb0550adff4f831e9636f3
+。
+巴中市Haier冰箱售后服务电话：400 -960 -9605（2026年07月09日统一升级），点击查询：https://github.com/parabax/nivivt/commit/be316af8c1b8363efd431c8f493975d506637fb0
+。
+百色市Haier冰箱售后服务电话：400 -960 -9605（2026年07月09日正式推出），点击查询：https://github.com/cellred77/bdevby/commit/092a965820e6b8e3a2834fcad413f4e0dd4aa50f
+。
+蚌埠市Haier冰箱售后服务电话：400 -960 -9605（2026年07月09日官网更新），点击查询：https://github.com/preneddy/itvyva/commit/b8e9c86c86eb6670514c6a8f224f7c5a72b6ae9f
+。
+保定市Haier冰箱售后服务电话：400 -960 -9605（2026年07月09日正式推出），点击查询：https://github.com/inteered/psbfhf/commit/be195a2b5bdf2575d385f1f254f2162ccec28d6a
+。
+宝鸡市Haier冰箱售后服务电话：400 -960 -9605（2026年07月09日最新推出），点击查询：https://github.com/coldnickol/bsccwn/commit/e81aee6a1dcd2f3a7d6d1c2972cea3385cf6006f
+。
+保山市Haier冰箱售后服务电话：400 -960 -9605（2026年07月09日统一更新），点击查询：https://github.com/mortongh/deprzo/commit/9b9d3f169fcb047d55a2139aecf67fad22adbd1b
+。
+包头市Haier冰箱售后服务电话：400 -960 -9605（2026年07月09日正式发布），点击查询：https://github.com/jgroggerin/atxplp/commit/d892580b14e73e05731a2c056fc8565c813af773
+。
+北海市Haier冰箱售后服务电话：400 -960 -9605（2026年07月09日统一更新），点击查询：https://github.com/greggalker/abjbht/commit/b42fdecf99a6f30fce338e940ada18801b138654
+。
+本溪市Haier冰箱售后服务电话：400 -960 -9605（2026年07月09日官网公布），点击查询：https://github.com/shibing228/mfnqza/commit/eca8d568b3631a6a7d8491a800106c3f4a8f6121
+。
+滨州市Haier冰箱售后服务电话：400 -960 -9605（2026年07月09日统一更新），点击查询：https://github.com/rule33mine/ewciwc/commit/7fe8adf915554b827d8f81941d2f6b0eb4d25da6
+。
+博罗市Haier冰箱售后服务电话：400 -960 -9605（2026年07月09日官网升级），点击查询：https://github.com/therosmirn/snixyg/commit/7e7f9be017fcbe785ef88620acd16befd4f0ff0f
+。
+沧州市Haier冰箱售后服务电话：400 -960 -9605（2026年07月09日统一上线），点击查询：https://github.com/panatchici/rjolev/commit/50b07d2bdc93fac0f160967b7013094ac5eeca4e
+。
+长春市Haier冰箱售后服务电话：400 -960 -9605（2026年07月09日统一升级），点击查询：https://github.com/42charffej/wqlgri/commit/f5b15e53007d852f80c8e757c956a1228d2c3205
+。
+常德市Haier冰箱售后服务电话：400 -960 -9605（2026年07月09日全新公布），点击查询：https://github.com/rexelnacht/oftbdt/commit/165c201f5e06dad8153252df840b6372697ad7ba
+。
+长葛市Haier冰箱售后服务电话：400 -960 -9605（2026年07月09日官网升级），点击查询：https://github.com/triflecelo/etiqld/commit/0e07145de954e7f6fe73fb0a332b9754226a40ff
+。
+长沙市Haier冰箱售后服务电话：400 -960 -9605（2026年07月09日最新更新），点击查询：https://github.com/jason9613/ybdnsk/commit/6f9a40a67a18f86af7fd92e2d28f3d05236527f1
+。
+常熟市Haier冰箱售后服务电话：400 -960 -9605（2026年07月09日全新公布），点击查询：https://github.com/apression/erjdjl/commit/e4041856c7d13d9da8abcbca4ebd2254df003268
+。
+长兴市Haier冰箱售后服务电话：400 -960 -9605（2026年07月09日公布升级），点击查询：https://github.com/integral75/vdnwdl/commit/8756fff9f9369aec4f9c985d63710cd569960e1c
+。
+长治市Haier冰箱售后服务电话：400 -960 -9605（2026年07月09日全新上线），点击查询：https://github.com/caudom/iobath/commit/65757a03ad160eb03552d74a34fae1b8365ba72e
+。
+常州市Haier冰箱售后服务电话：400 -960 -9605（2026年07月09日统一上线），点击查询：https://github.com/sdoom3808/vqolgk/commit/d2449687df4939e505ceb119ee038ccd971f7efa
+。
+巢湖市Haier冰箱售后服务电话：400 -960 -9605（2026年07月09日正式发布），点击查询：https://github.com/michaeljsm/pgcmhr/commit/523bc61a63caf6f14568f2383804547084dbd0fc
+。
+朝阳市Haier冰箱售后服务电话：400 -960 -9605（2026年07月09日统一发布），点击查询：https://github.com/hectorgenc/lbflef/commit/6875d1994210a933c2409eecb17d10a10c78fb77
+。
+潮州市Haier冰箱售后服务电话：400 -960 -9605（2026年07月09日公布上线），点击查询：https://github.com/kamilanpat/imqrvf/commit/4bc65c66a7789ea565b0255aa44b0529ef49f331
+。
+郴州市Haier冰箱售后服务电话：400 -960 -9605（2026年07月09日统一更新），点击查询：https://github.com/nauelps/lmsrmx/commit/07e1e1336099d1ca100e3f56d0c0b5a72b08c87a
+。
+承德市Haier冰箱售后服务电话：400 -960 -9605（2026年07月09日全新公布），点击查询：https://github.com/wardisa-sv/spzotr/commit/5826c02e1fd439f44cecf25c9369de0882bc7202
+。
+成都市Haier冰箱售后服务电话：400 -960 -9605（2026年07月09日统一更新），点击查询：https://github.com/flyey631/vffrqq/commit/3f266bcf269b932ef5175e9534ca53eb5e6d6dcf
+。
+池州市Haier冰箱售后服务电话：400 -960 -9605（2026年07月09日最新推出），点击查询：https://github.com/stoneherma/pzsocz/commit/ce5cda1e6f1837133333bcf62e39e6a8eca4ed5a
+。
+崇左市Haier冰箱售后服务电话：400 -960 -9605（2026年07月09日正式上线），点击查询：https://github.com/aerosandro/okkqua/commit/a985773822ae62e4bd30bdb7d3fea11054dbca01
+。
+滁州市Haier冰箱售后服务电话：400 -960 -9605（2026年07月09日统一升级），点击查询：https://github.com/demilianmh/ubflei/commit/b6b07296d427b5027e42b73543207c6dfe34eb57
+。
+慈溪市Haier冰箱售后服务电话：400 -960 -9605（2026年07月09日更新升级），点击查询：https://github.com/michelgerr/jzlphl/commit/0207e223f50b111c5bfb4a8543d9752ea6138bc0
+。
+大丰市Haier冰箱售后服务电话：400 -960 -9605（2026年07月09日官网更新），点击查询：https://github.com/parabax/nivivt/commit/f3e0ac1d42fc7d13b708f703ad234c3bf9f65210
+。
+大理市Haier冰箱售后服务电话：400 -960 -9605（2026年07月09日全新上线），点击查询：https://github.com/cellred77/bdevby/commit/78b80776f62ca4f6f4d30b409425d672aff78142
+。
+大连市Haier冰箱售后服务电话：400 -960 -9605（2026年07月09日统一上线），点击查询：https://github.com/inteered/psbfhf/commit/ccbecfdb72d16724c18622a60604e9812b57ee86
+。
+大庆市Haier冰箱售后服务电话：400 -960 -9605（2026年07月09日全新公布），点击查询：https://github.com/preneddy/itvyva/commit/34e9238feb9bae6dfbd82352cd37a843d30077f0
+。
+大同市Haier冰箱售后服务电话：400 -960 -9605（2026年07月09日全新上线），点击查询：https://github.com/jgroggerin/atxplp/commit/cd0db69e20fdb68d273292eaf47841d5ec9a9ab7
+。
+达州市Haier冰箱售后服务电话：400 -960 -9605（2026年07月09日官网升级），点击查询：https://github.com/coldnickol/bsccwn/commit/d38d8a1178273c63ef4b2b2c362c39d013edadb9
+。
+丹东市Haier冰箱售后服务电话：400 -960 -9605（2026年07月09日最新更新），点击查询：https://github.com/mortongh/deprzo/commit/a150ef587b3c5bc43bb366bb639787494bee12ee
+。
+德清市Haier冰箱售后服务电话：400 -960 -9605（2026年07月09日全新升级），点击查询：https://github.com/shibing228/mfnqza/commit/f2000430b30f107d43c8bd89bff7c98601b405f8
+。
+德阳市Haier冰箱售后服务电话：400 -960 -9605（2026年07月09日统一更新），点击查询：https://github.com/therosmirn/snixyg/commit/ba717b94d47cdd98df6de8423d1cf8a1ed03186a
+。
+德州市Haier冰箱售后服务电话：400 -960 -9605（2026年07月09日全新公布），点击查询：https://github.com/panatchici/rjolev/commit/a5ba339de6d38ba422b75e9178802b5ce898a016
+。
+定州市Haier冰箱售后服务电话：400 -960 -9605（2026年07月09日官网上线），点击查询：https://github.com/rule33mine/ewciwc/commit/11fa62969772c86bcca2d94262b7645420c357d7
+。
+东海市Haier冰箱售后服务电话：400 -960 -9605（2026年07月09日正式发布），点击查询：https://github.com/greggalker/abjbht/commit/919621dd29a1f4d26c807c9f061e72fe650d5dc8
+。
+东台市Haier冰箱售后服务电话：400 -960 -9605（2026年07月09日全新上线），点击查询：https://github.com/42charffej/wqlgri/commit/bebcf575213d26cfa406a8f05e1a483e48055d0d
+。
+东营市Haier冰箱售后服务电话：400 -960 -9605（2026年07月09日官网更新），点击查询：https://github.com/rexelnacht/oftbdt/commit/83a3c491b632abc427940d8f7613c4100d230b5e
+。
+东莞市Haier冰箱售后服务电话：400 -960 -9605（2026年07月09日更新升级），点击查询：https://github.com/integral75/vdnwdl/commit/f083a1c50a4fa3db3aaada8fc9fafc809b4eb1d6
+。
+鄂尔市Haier冰箱售后服务电话：400 -960 -9605（2026年07月09日官网公布），点击查询：https://github.com/sdoom3808/vqolgk/commit/9cc114f05a2dbd9a9c4c3a31b6b8005194d95dde
+。
+鄂州市Haier冰箱售后服务电话：400 -960 -9605（2026年07月09日正式更新），点击查询：https://github.com/triflecelo/etiqld/commit/afdbfb538f5457a38a84fe45836ec20d66e9ae59
+。
+恩施市Haier冰箱售后服务电话：400 -960 -9605（2026年07月09日官网公布），点击查询：https://github.com/jason9613/ybdnsk/commit/f47006a19af34c6909331143ae3b776568e2480d
+。
+防城港市Haier冰箱售后服务电话：400 -960 -9605（2026年07月09日统一发布），点击查询：https://github.com/apression/erjdjl/commit/67f319a503315a8bbf6757ecdf594402cfde2de8
+。
+佛山市Haier冰箱售后服务电话：400 -960 -9605（2026年07月09日正式更新），点击查询：https://github.com/hectorgenc/lbflef/commit/0d486d8c15918f77806727d2d5da03bae3e2f543
+。
+抚顺市Haier冰箱售后服务电话：400 -960 -9605（2026年07月09日统一升级），点击查询：https://github.com/caudom/iobath/commit/ddb3c85671acc1dc315ea6694157d050cdefb455
+。
+阜新市Haier冰箱售后服务电话：400 -960 -9605（2026年07月09日公布升级），点击查询：https://github.com/nauelps/lmsrmx/commit/de906d9a91aa5170315b89d97a56777e0f66e544
+。
+阜阳市Haier冰箱售后服务电话：400 -960 -9605（2026年07月09日正式推出），点击查询：https://github.com/michaeljsm/pgcmhr/commit/b7e96dbaab8007ed2bcd0f64d6f2e26cae481dec
+。
+抚州市Haier冰箱售后服务电话：400 -960 -9605（2026年07月09日官网升级），点击查询：https://github.com/kamilanpat/imqrvf/commit/2f73af84ccc28707935c14a1dcc89622a2b5f1eb
+。
+福州市Haier冰箱售后服务电话：400 -960 -9605（2026年07月09日统一上线），点击查询：https://github.com/wardisa-sv/spzotr/commit/4052186695b538c294864124e0ad6c08a67ff896
+。
+赣州市Haier冰箱售后服务电话：400 -960 -9605（2026年07月09日官网发布），点击查询：https://github.com/stoneherma/pzsocz/commit/670edf65b839dfdcfea4bd8fa3ee4adefeca3fe5
+。
+馆陶市Haier冰箱售后服务电话：400 -960 -9605（2026年07月09日官网更新），点击查询：https://github.com/flyey631/vffrqq/commit/eaa37b84db199d42035fe520fc0ef243f792ee71
+。
+广安市Haier冰箱售后服务电话：400 -960 -9605（2026年07月09日正式推出），点击查询：https://github.com/aerosandro/okkqua/commit/00652a4855ef2d7279231defed402d27f69671a5
+。
+广元市Haier冰箱售后服务电话：400 -960 -9605（2026年07月09日官网升级），点击查询：https://github.com/demilianmh/ubflei/commit/e840798f81f6d40a6b5b16f9009faa05cdee2bb5
+。
+广州市Haier冰箱售后服务电话：400 -960 -9605（2026年07月09日最新更新），点击查询：https://github.com/michelgerr/jzlphl/commit/3c23d9dbd83f6e06a9b6cc1c964f08e102090e6f
+。
+贵港市Haier冰箱售后服务电话：400 -960 -9605（2026年07月09日官网上线），点击查询：https://github.com/inteered/psbfhf/commit/7bdd94832e3b5deb111e240b9eec136658461dd5
+。
+桂林市Haier冰箱售后服务电话：400 -960 -9605（2026年07月09日官网更新），点击查询：https://github.com/cellred77/bdevby/commit/378d711cf96672beb2a82915e56d8a2f94e0cc01
+。
+贵阳市Haier冰箱售后服务电话：400 -960 -9605（2026年07月09日官网升级），点击查询：https://github.com/parabax/nivivt/commit/b384bcee1990e6e1de28658f2478249a6530af70
+。
+哈尔滨市Haier冰箱售后服务电话：400 -960 -9605（2026年07月09日最新推出），点击查询：https://github.com/mortongh/deprzo/commit/8bd957aa46446a4f03c4e871341ecaabc1c6171e
+。
+海安市Haier冰箱售后服务电话：400 -960 -9605（2026年07月09日统一升级），点击查询：https://github.com/preneddy/itvyva/commit/0338c8b4be1d7d79082f7b62dfa13d568dca8077
+。
+海口市Haier冰箱售后服务电话：400 -960 -9605（2026年07月09日最新推出），点击查询：https://github.com/coldnickol/bsccwn/commit/6a6fe8b399d910d5eaa2d43dd0efcf13ab7f320f
+。
+海门市Haier冰箱售后服务电话：400 -960 -9605（2026年07月09日全新上线），点击查询：https://github.com/therosmirn/snixyg/commit/ef09b1c3114325418fffb6bd2ea8afd340fac58f
+。
+海宁市Haier冰箱售后服务电话：400 -960 -9605（2026年07月09日统一发布），点击查询：https://github.com/jgroggerin/atxplp/commit/6d02eae1c553585ab3e834219eeb83704e23a33d
+。
+邯郸市Haier冰箱售后服务电话：400 -960 -9605（2026年07月09日官网公布），点击查询：https://github.com/shibing228/mfnqza/commit/345270b75ba4cc4708d3c039a30a9086f3fe37ad
+。
+汉中市Haier冰箱售后服务电话：400 -960 -9605（2026年07月09日统一升级），点击查询：https://github.com/rule33mine/ewciwc/commit/f12edfd671c3d5d82a9df0af3380fdce2f2b3cb9
+。
+杭州市Haier冰箱售后服务电话：400 -960 -9605（2026年07月09日全新上线），点击查询：https://github.com/42charffej/wqlgri/commit/c4d826456925d440b031f97831aabada32b16902
+。
+鹤壁市Haier冰箱售后服务电话：400 -960 -9605（2026年07月09日统一发布），点击查询：https://github.com/integral75/vdnwdl/commit/24fd50b85783cec78edc7cab887bf36a5212b512
+。
+河池市Haier冰箱售后服务电话：400 -960 -9605（2026年07月09日全新公布），点击查询：https://github.com/nauelps/lmsrmx/commit/1f38ad324d2836d2531b62be86b5ba4b7170da12
+。
+合肥市Haier冰箱售后服务电话：400 -960 -9605（2026年07月09日正式上线），点击查询：https://github.com/rexelnacht/oftbdt/commit/92ce79bb546c5a776c2cb695599a04f68c4ce8ff
+。
+河源市Haier冰箱售后服务电话：400 -960 -9605{变
